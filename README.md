@@ -1,23 +1,19 @@
- ------------------------🕊️---------------
+ ----------------------------------------------------------🕊️-----------------------------------------------------------------------------
+                          
 
-<div align="center">  
-                             <img src="idk.png"> 
-
- 
-                          <img src="i love kedamono wdym.png">
-
-                                    # ✦ HUNX / HUN / HŨN / MEO ✦
-      🕊️- I LOVE KEDAMONO IN POPEE THE PERFORMER AND OOKAMI KEITA IN CHINCHIKURIN AHHH
-      ✦ DNI PROSHIP
-      ✦ DNI MINORSHIP
-      
-               Respect my ship, I'll respect yours!! ^^
+                                                       
+                                     # ✦ HUNX / HUN / HŨN / MEO ✦ #
+                                     
+      ✦🕊️- I LOVE KEDAMONO IN POPEE THE PERFORMER / OOKAMI KEITA IN CHINCHIKURIN  -🕊️✦
+                 ✦ IF I SEE YOU COSPLAY THEM , I WILL COME AND KISS YOU RIGHT AWAY >.< ✦   
                  
-
-                             <img src="ookami keita.png">
+      ✦ DNI PROSHIP * DNI MINORSHIP ✦ I HATE TOXIC FANS AND TOXIC YUMESHIPERS  TOO <3
+      
+      ✦ ROBLOX : mewnekk_zoni (hunx) ✦
+      
+              ✦ Respect my ship, I'll respect yours!! ^^ ✦
+       
+               
  
 
-                              <img src="README.md">
- 
-
-------------------------🕊️---------------
+----------------------------------------------------------🕊️-----------------------------------------------------------------------------
