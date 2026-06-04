@@ -8,7 +8,7 @@
            ✦🕊️- I LOVE KEDAMONO IN POPEE THE PERFORMER / OOKAMI KEITA IN CHINCHIKURIN  -🕊️✦
                   ✦ IF I SEE YOU COSPLAY THEM , I WILL COME AND KISS YOU RIGHT AWAY ✦   
                  
-            🕊️-    ✦ DNI PROSHIP * DNI MINORSHIP ✦ I HATE TOXIC FANS AND TOXIC YUMESHIPERS TOO <3 ✦ -🕊️-
+            🕊️-    ✦ DNI PROSHIP ✦ I HATE TOXIC FANS * TOXIC YUMESHIPERS TOO <3 ✦ -🕊️-
 
              
                                    🕊️- ✦ MULTIFANDOMS - MULTISHIPS ✦  -🕊️
